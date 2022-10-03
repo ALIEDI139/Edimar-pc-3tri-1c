@@ -1,1 +1,7 @@
 # Edimar-pc-3tri-1c
+
+ALISSON R. DOS SANTOS N:1
+
+EDISON LUNA DE SOUZA N:39
+
+
